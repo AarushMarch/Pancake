@@ -1,0 +1,1 @@
+Combine wet ingredients & dry ingredients seperatly and after that mix the two mixtures together and fry on low heat.
